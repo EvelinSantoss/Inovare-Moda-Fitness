@@ -8,3 +8,5 @@ Legging Femenina de Academia Suplex Preta/Branca
 
 Disponível nos tamanhos M/G
 R$ 89,90
+
+![image](https://user-images.githubusercontent.com/106348895/197035093-a55e003c-345f-4bd2-9ad5-a89aee3cd19a.png)
