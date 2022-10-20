@@ -14,7 +14,9 @@ WhatsApp: 41 9873-6219
 
 # Conjuntos
 
-![image](https://user-images.githubusercontent.com/106348895/197045123-3a6616b6-528d-4908-a625-0a0ac070b86b.png)     
+![image](https://user-images.githubusercontent.com/106348895/197045123-3a6616b6-528d-4908-a625-0a0ac070b86b.png)    
+Disponivel nos tamanhos P M G 
+R$ 109,90
 
 ![image](https://user-images.githubusercontent.com/106348895/197045335-9993c7fe-2a60-47b7-b8b1-8f5615af3115.png)
 
