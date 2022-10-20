@@ -2,7 +2,6 @@
 Legging Femenina de Academia Suplex Preta/Branca
 
 Image
-
 Image
 
 Disponível nos tamanhos M/G
