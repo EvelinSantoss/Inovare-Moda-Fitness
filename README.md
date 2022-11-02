@@ -27,9 +27,9 @@ R$ 89,90
 
 # Top Fitness
 
-![image](https://user-images.githubusercontent.com/106348895/199598623-b6413201-123d-41d0-bf69-647150e4fe31.png)
+![image](https://user-images.githubusercontent.com/106348895/199599747-457ad0d5-3b06-4b3c-bb69-6c76e531dd9f.png)
 
-Conjunto de top tamanho único R$ 79,90
+Top tamanho único R$ 59,90
 
 
 ![image](https://user-images.githubusercontent.com/106348895/199599451-6582c14b-d4e8-4094-94f7-b45e12f06411.png)
