@@ -40,12 +40,12 @@ Top nadador R$ 49,90
 
 # Legging
 
-![image](https://user-images.githubusercontent.com/106348895/199600323-41f38141-f8f2-4f0c-b3a1-1894699bfc3b.png)
 
+![image](https://user-images.githubusercontent.com/106348895/199600323-41f38141-f8f2-4f0c-b3a1-1894699bfc3b.png)
 Legging tamanho P R$ 69,90
 
 
-![image](https://user-images.githubusercontent.com/106348895/199600754-8842db22-5494-4165-be95-0265669c5ca7.png)
 
+![image](https://user-images.githubusercontent.com/106348895/199600754-8842db22-5494-4165-be95-0265669c5ca7.png)
 R$ 159,90 
 
