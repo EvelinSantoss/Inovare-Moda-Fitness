@@ -56,9 +56,7 @@ R$ 159,90
 
 
 ![image](https://user-images.githubusercontent.com/106348895/205105669-6d892e2a-3049-4f2d-9d4a-977a8fa2ce7b.png)
-![image](https://user-images.githubusercontent.com/106348895/205106347-2a62d7be-6774-4daf-b7a8-c885a70aef2a.png)
-
-
+![image](https://user-images.githubusercontent.com/106348895/205106870-7201e2cd-0e73-4e35-9750-81a626402323.png)
 
 Regata masculina R$ 69,90
 10% á vista !!
