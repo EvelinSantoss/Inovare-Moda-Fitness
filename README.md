@@ -55,8 +55,10 @@ Legging tamanho P R$ 69,90
 R$ 159,90 
 
 
+![image](https://user-images.githubusercontent.com/106348895/205105669-6d892e2a-3049-4f2d-9d4a-977a8fa2ce7b.png)
 
 
 Regata masculina R$ 69,90
+10% á vista !!
 
 
